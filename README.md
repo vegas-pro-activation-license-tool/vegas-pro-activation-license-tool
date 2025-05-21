@@ -1,0 +1,1 @@
+# vegas-pro-activation-license-tool
